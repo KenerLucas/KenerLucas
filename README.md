@@ -1,2 +1,3 @@
 - 👋 Oi, Sou @KenerLucas
-- 👀 Sou interessado em informática para internet
+- 🏫 Atualmente no ensino médio
+- 🖥️ cursando TI
