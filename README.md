@@ -1,0 +1,2 @@
+- 👋 Oi, Sou @KenerLucas
+- 👀 Sou interessado em informática para internet
